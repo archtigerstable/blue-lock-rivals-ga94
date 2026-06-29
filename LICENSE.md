@@ -1,4 +1,4 @@
-
+new Script for blue lock rivals offers the most advanced blue lock rivals Script, with undetectable and anti-ban. Perfect for dominating any match.
 
 
 
